@@ -15,5 +15,6 @@ Some of my interests are:
 Here’s a [link](https://www.instagram.com/m_jovana276/) to my instagram page!
 
 >Life is what happens to you while you are making other plans.
+
 This is a quote I've recently heard and liked.
 
