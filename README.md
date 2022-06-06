@@ -1,5 +1,3 @@
-# JovanaMojsilovic
-
 
 
 # Hello. My name is Jovana.
